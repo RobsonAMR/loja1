@@ -8,4 +8,3 @@
 layout: home
 ---
 ![Loja de Ferragens](assets/ferragens-e-ferramentas-imagem.jpg)
-![](https://blog.vhsys.com.br/wp-content/uploads/2013/09/sistema-loja-ferragens-vhsys.jpg)

@@ -14,3 +14,5 @@ Ferramentas elétricas As ferramentas elétricas agregam praticidade na execuç�
 
 Ferramentas intercambiáveis
 As ferramentas intercambiáveis oferecem muitas vantagens ao seu trabalho, agregando eficácia e economia. Por funcionarem à bateria, não têm fios; são mais leves e práticas; e, a partir do momento que você já possui um modelo de ferramenta intercambiável, você pode comprar outras ferramentas sem bateria, tornando o custo mais barato. As ferramentas intercambiáveis são ferramentas elétricas que possuem uma bateria removível compatível com outras diferentes que foram desenvolvidas com a mesma tecnologia. Assim, você pode utilizar sua furadeira, parafusadeira, martelete, lixadeira, serra tico-tico, serra circular, entre outras com a mesma bateria.
+
+![Ferramentas](https://mlgyuxppjpma.i.optimole.com/jWD0dRI.M1z_~5a022/w:1920/h:672/q:79/f:avif/https://www.obrazul.com.br/blog/wp-content/uploads/2022/11/ferramentas.jpeg)
